@@ -11,3 +11,10 @@
 1. disyariatkan mengunjungi 5 tempat di madinah: 2 masjid dan 3 kuburan
 2. masjid: masjid nabawi dan quba; kuburan: makam rasul dan sahabat abu bakr & umar; baqi; syuhada uhud
 3. jangan bersusah payah melakukan perjalanan kecuali ke masjidil haraml; masjid nabawi; masjid aqsa
+
+# H8 ZIarah masjid nabi 2
+
+1. sholat di masjid nabawi 1x = 1000x di masjid lain
+2. sholat di masjidil-haram 1x = 100.000x di masjid lain
+
+Mari kita senantiasa mencari jalan ke haram-ain
