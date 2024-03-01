@@ -26,3 +26,8 @@
 7. Pengarang menulis basmalah -- innahu min sulaimaana, wa innahu bismillaahirahmaanirahiiim (surat nabi sulaiman)
 8. ba dalam ucapan bismillaah bermakna memohon pertolongan
 9. bismillaah --> aku minta tolong kepada Allah dengan semua nama nya
+
+# H4 Penjelasan-1
+1. 10 perkara nawaqidul islam:
+2. syirik, menyekutukan Allah al-an'aam 151
+3. 
