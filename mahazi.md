@@ -20,3 +20,12 @@ Mari kita senantiasa mencari jalan ke haram-ain
 1. hadits solat 40 rakaat (arba'in) di masjid nabi --> perawinya tidak diketahui
 2. sholat 40 hari berjamaah dan dapat takbir --> pembebasan dari neraka dan kenifaqan
 3. 
+
+# H10 Ziarah masjid nabawi 4
+
+1. solat dengan pahala lebih dari 1000x, di area masjid dulu dan sekarang
+2. berlaku utk solat fardhu dan sunnah
+3. sholat wanita di rumah lebih besar dari shoat di masjid nabawi, tapi jangan dilarang kalau mau ke masjid nabawi
+4. dulu, istri-istri nabi sholat d rumah
+5. sholat sunnah d rumah lebih besar pahala dari sholat di masjid nabawi --> keumuman hadits solat sunnah lebih afdol di rumah
+6. 
