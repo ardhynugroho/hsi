@@ -31,3 +31,10 @@
 1. 10 perkara nawaqidul islam:
 2. syirik, menyekutukan Allah al-an'aam 151
 3. 
+
+# H5 Penjelasan-2
+1. apa itu ibadah: ismun jami'un li kulli ... seluruh perkara yang dicintai Allah ucapan/perbuatan yang diridhoi Allah
+2. menyekutukan Allah dalam beribadah adalah pembatal paling besar
+3. allah tidak mengampuni dosa syirik, dan mengampuni dosa yg lebih ringan bagi siapa yang Dia kehendaki
+4. tidak diampuni ketika datang menghadap Allah dengan dosa syirik, tetapi sebelum mati bertaubat maka Allah maha pengampun
+5. dosa syirik menyebabkan masuk neraka
