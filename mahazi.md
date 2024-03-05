@@ -29,3 +29,13 @@ Mari kita senantiasa mencari jalan ke haram-ain
 4. dulu, istri-istri nabi sholat d rumah
 5. sholat sunnah d rumah lebih besar pahala dari sholat di masjid nabawi --> keumuman hadits solat sunnah lebih afdol di rumah
 6. 
+
+# H11 Ziarah masjid nabawi 5
+
+1. maa baina baity wa mimbariy raudatun min riyadin jannah HR al buchori dan muslim dari abu hurairoh
+2. baity = maksudnya rumah aisyah ra, mimbariy = mimbar yang terletak di tengah masjid nabawi
+3. jangan memaksakan diri di raudoh --> jangan memudoroti orang lain
+4. sholat fardhu di shaf pertama utk laki2 lebih baik dari sholat di raudhoh
+5. sholat khusyuk lebih baik dari pada sholat d raudhoh
+6. keumuman hatis: sebaik-baik shof laki2 adalah yg pertama
+7. khoiru shufuf fi rrijaali awwaluhaa he muslim
