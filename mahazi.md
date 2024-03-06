@@ -39,3 +39,7 @@ Mari kita senantiasa mencari jalan ke haram-ain
 5. sholat khusyuk lebih baik dari pada sholat d raudhoh
 6. keumuman hatis: sebaik-baik shof laki2 adalah yg pertama
 7. khoiru shufuf fi rrijaali awwaluhaa he muslim
+
+# H12 Ziarah masjid nabawi 6
+1. disana, kedudukan orang belajar dan mengajarkan ilmu agama seperti orang berjihad d jalan allah
+2. karena itu kalau ke masjid nabawi belajarlah ilmu agama, karena sudah disediakan banyak halaqoh berbagai bahasa
