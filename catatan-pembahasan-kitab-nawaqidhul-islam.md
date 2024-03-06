@@ -32,9 +32,24 @@
 2. syirik, menyekutukan Allah al-an'aam 151
 3. 
 
-# H5 Penjelasan-2
+# H5 Pembatal Islam Pertama
 1. apa itu ibadah: ismun jami'un li kulli ... seluruh perkara yang dicintai Allah ucapan/perbuatan yang diridhoi Allah
 2. menyekutukan Allah dalam beribadah adalah pembatal paling besar
 3. allah tidak mengampuni dosa syirik, dan mengampuni dosa yg lebih ringan bagi siapa yang Dia kehendaki
 4. tidak diampuni ketika datang menghadap Allah dengan dosa syirik, tetapi sebelum mati bertaubat maka Allah maha pengampun
 5. dosa syirik menyebabkan masuk neraka
+
+# H6
+
+# H7 Pembatal Islam Kedua bag. 1
+1. Barang siapa yang menjadikan antara dia dan allah perantara-perantara berdoa meminta syafaat dan bertawakal, maka kufur sesuai kesepakatan ulama
+2. pembatal pertama lebih umum, sedang yang kedua di khususkan karena banyak manusia terjerumus
+3. doa adalah ibadah -- suraf ghaafir 60
+4. allah mencintai doa, karena itu doa adalah ibadah
+5. doa adalah ibadah hr abu dawud
+6. siapa yang berdoa kepada selain allah, sungguh telah terjerumus syirik walaupun minta dimohonkan ampunan atau syafaat atau minta didekatkan
+7. tawakkal adalah ibadah juga -- al maidah 23
+8. tawakal bagian dari keimanan
+9. surat yunus 18 --> hakikat peribadatan sebagain musyrikin d jaman nabi, menjadikan orang sholeh sebagai pemberi syafaat dgn memberikan sebagian ibadah kepada mereka
+10. laata & uzza, al-laatta = orang yg soleh kalau datg musim haji sering kasih makan
+11. syirik ini semua adalah bisikan syaithon dan persangkaan belaka
