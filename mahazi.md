@@ -43,3 +43,15 @@ Mari kita senantiasa mencari jalan ke haram-ain
 # H12 Ziarah masjid nabawi 6
 1. disana, kedudukan orang belajar dan mengajarkan ilmu agama seperti orang berjihad d jalan allah
 2. karena itu kalau ke masjid nabawi belajarlah ilmu agama, karena sudah disediakan banyak halaqoh berbagai bahasa
+
+# H13 Ziarah Masjid Quba 1
+1. setelah ziarah masjid nabawi, di syariatkan ke masjid quba
+2. masjid yang pertama kali di bangun rasulullaah
+3. masjid ini yg dimaksud di at-taubah 108
+4. dinamakan masjid quba, karena dibangun d desa quba
+5. desa quba diambil dr nama sumur di desa tersebut
+6. desa ini dihuni bani amr ibn auf dari anshor
+7. siapa saja yg bersuci dari rumah, ke masjid quba, lalu melakukan sebuah solat, dia dapat pahala umroh HR ibn majjah
+8. rasulullah datang ke masjid quba, lalu sholat 2 rokaat hr buckari dan muslim
+9. aku melihat rasulullah mendatangi masjid quba setiap pekan -- abdullah bin dinar, ibnu umar melakukannya
+10. pahala umroh untuk sholat fardhu maupun sholat sunnah
