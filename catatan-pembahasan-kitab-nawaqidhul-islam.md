@@ -53,3 +53,11 @@
 9. surat yunus 18 --> hakikat peribadatan sebagain musyrikin d jaman nabi, menjadikan orang sholeh sebagai pemberi syafaat dgn memberikan sebagian ibadah kepada mereka
 10. laata & uzza, al-laatta = orang yg soleh kalau datg musim haji sering kasih makan
 11. syirik ini semua adalah bisikan syaithon dan persangkaan belaka
+
+# H8 
+1. keyakinan orang musyrik quraish: dgn menyembah oorang sholeh tsb bisa semakin dekat dengan allah -- az zumar:3
+2. ucapan ini dihukumi sifat: ini adalah ucapan dusta dan sangat kufur
+3. diantar alasan meminta doa dan syafaat pd orang sholeh tsb adlah: mereka dalam keadaan hidup, dengar, dan boleh minta doa seperti halnya mereka ketika masih hidup
+4. bantahan: mereka hidup di alam barzakh ali imron 169-170, tapi mereka tidak bisa mendengar doa orang d alam dunia
+5. surat fathir 14 -- mereka tidak bisa mengabulkan doa dan kelak akan melepaskan diri di hari kiamat
+6. 
