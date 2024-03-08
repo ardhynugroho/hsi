@@ -55,3 +55,9 @@ Mari kita senantiasa mencari jalan ke haram-ain
 8. rasulullah datang ke masjid quba, lalu sholat 2 rokaat hr buckari dan muslim
 9. aku melihat rasulullah mendatangi masjid quba setiap pekan -- abdullah bin dinar, ibnu umar melakukannya
 10. pahala umroh untuk sholat fardhu maupun sholat sunnah
+
+# H14 Ziarah Masjid Quba 2
+1. sholat dimasjid quba seperti umroh, jadi bisa wudhu dimana aja
+2. bersuci dari rumah = utk orang yang tinggal sekitar masjid quba
+3. tidak boleh berpayah2 pergi ke masjid quba, yang boleh hanya: masjid haram; masjid nabawi; mas al-aqsa
+4. 
