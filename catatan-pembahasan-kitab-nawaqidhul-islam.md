@@ -70,3 +70,12 @@
 5. demikian rasulullah membedakan hidup dan mati
 6. analogi ketemu presiden aja ga bisa langsung, apalagi meminta kepada Allah --> ini argumen yg aneh, karena menyamakan Allah dengan makhluk
 7. al-baqarah 284
+
+# H10
+1. jika ada yg bilang perlu perantara seperti mau ketemu presiden --> berarti sudah menyamakan Allah dengan makhluk -- ashura 11
+2. Allah menyuruh kita berdoa langsung tanpa perantara -- ghofir 60
+3. bisa hamba bertanya kepada Ku ttg diri Ku bertahukan bahwa aku dekat dan mengabulkan doa -- al baqarah 126
+4. selama kita mau berdoa dan berharap kepada Allah justru itu adalah sebab mendapat ampunan dari Allah
+5. marilah kita kembali kepada Al quran dan hadits untuk mendapatkan syafaat --> syarat: mentauhidkan Allah
+6. setiap nabi punya doa yg mustajab dan telah menyegerakan di dunia, dan rasulullah menyimpan doa utk hari kiamat sebagai syafaat utk ummatnya yang tidak menyekutukan Allah sedikit pun ketika meninggal dunia
+7. siapa orang yg paling germbira mendapat syafaat di hari kiamat --> orang yang menyempurnakan tauhidnya
