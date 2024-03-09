@@ -61,3 +61,12 @@
 4. bantahan: mereka hidup di alam barzakh ali imron 169-170, tapi mereka tidak bisa mendengar doa orang d alam dunia
 5. surat fathir 14 -- mereka tidak bisa mengabulkan doa dan kelak akan melepaskan diri di hari kiamat
 6. 
+
+# H9 
+1. rasulullah membedakan keadaan ketika hidup & meninggal
+2. ketika aisyah sakit kepala, rasulullah bersabda seandainya aisyah meninggal karena sakit kepala, dan rasulullaah masih hidup niscaya akan di doakan
+3. dulu jaman umar, terjadi paceklik, sampai banyak yang mencuri, tapi umar tidak memotong tangan mereka
+4. lalu solat istisqa dan berdoa bahwa dulu ketika paceklik dan rasulullah masih ada, maka mereka bisa bertawasul melalui rasulullah, sekarang mereka bertawasul melalui paman nabi: abbas yang masih hidup
+5. demikian rasulullah membedakan hidup dan mati
+6. analogi ketemu presiden aja ga bisa langsung, apalagi meminta kepada Allah --> ini argumen yg aneh, karena menyamakan Allah dengan makhluk
+7. al-baqarah 284
