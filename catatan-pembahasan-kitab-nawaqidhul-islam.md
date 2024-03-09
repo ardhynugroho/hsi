@@ -79,3 +79,4 @@
 5. marilah kita kembali kepada Al quran dan hadits untuk mendapatkan syafaat --> syarat: mentauhidkan Allah
 6. setiap nabi punya doa yg mustajab dan telah menyegerakan di dunia, dan rasulullah menyimpan doa utk hari kiamat sebagai syafaat utk ummatnya yang tidak menyekutukan Allah sedikit pun ketika meninggal dunia
 7. siapa orang yg paling germbira mendapat syafaat di hari kiamat --> orang yang menyempurnakan tauhidnya
+8. hadits qudsi: wahai anak adam selama engkau berdoa kepadaKu niscaya Aku akan mengampuni dosamu apapun dosa yang engkau lakukan dan Aku tidak akan perduli
