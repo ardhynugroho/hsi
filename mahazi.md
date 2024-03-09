@@ -61,3 +61,8 @@ Mari kita senantiasa mencari jalan ke haram-ain
 2. bersuci dari rumah = utk orang yang tinggal sekitar masjid quba
 3. tidak boleh berpayah2 pergi ke masjid quba, yang boleh hanya: masjid haram; masjid nabawi; mas al-aqsa
 4. 
+
+# H15 Ziarah Masjid Quba 3
+1. sholat di masjid quba berpahala umroh tidak menggugurkan kewajiban orang yg wajib umroh, misal nadzar umroh kalau lulus
+2. yang dimaksud makna kulla sabtin (setiap sabtu), yaitu bermakna pekan dari pendapat yg lebih kuat --> sabtu = as-sabt, tapi sabtun = maksudnya pekan
+3. berkunjung ke masjid quba bisa kapan saja
