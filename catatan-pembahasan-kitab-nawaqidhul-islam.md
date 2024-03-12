@@ -80,3 +80,16 @@
 6. setiap nabi punya doa yg mustajab dan telah menyegerakan di dunia, dan rasulullah menyimpan doa utk hari kiamat sebagai syafaat utk ummatnya yang tidak menyekutukan Allah sedikit pun ketika meninggal dunia
 7. siapa orang yg paling germbira mendapat syafaat di hari kiamat --> orang yang menyempurnakan tauhidnya
 8. hadits qudsi: wahai anak adam selama engkau berdoa kepadaKu niscaya Aku akan mengampuni dosamu apapun dosa yang engkau lakukan dan Aku tidak akan perduli
+
+# H11 pembatal keislaman ke-3 bag. 1
+1. barang siapa yang tidak mengkafirkan orang2 musyrikin , atau ragu, atau membenarkan mazhab mereka maka telah kafir menurut ijma'
+2. tidak boleh ada satu pun kabar dari Allah dan rasulnya didustakan oleh seorang muslim, kecuali dia telah keluar dari islam
+3. diantara kabar yang datang dari Allah dan rasulnya = orang-orang yang kafir --> musyrikin; ahli kitab; orang munafiq --> kewajiban kita meyakini kekafiran mereka
+4. al bayyinah 6
+5. sudah dibilang di al bayiinah, mereka kafir, maka tidak ada lain kecuali meyakini bahwa mereka adalah kafir
+6. al maidah 73 --> ttg kekafiran penganut trinitas
+7. al maidah 17 --> menyebut al masih sebagai Allah
+8. tidak boleh membeda-bedakan rasul
+9. annisa 150-151
+10. siapa yang mendengar kedatangan rasulullah, lalu meninggal sebelum beriman, maka dia masuk neraka
+11. sesungguhnya orang2 munafiq ada dineraka yg paling bawah -- annisaa 145
