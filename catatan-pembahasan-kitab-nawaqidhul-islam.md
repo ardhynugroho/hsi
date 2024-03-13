@@ -93,3 +93,20 @@
 9. annisa 150-151
 10. siapa yang mendengar kedatangan rasulullah, lalu meninggal sebelum beriman, maka dia masuk neraka
 11. sesungguhnya orang2 munafiq ada dineraka yg paling bawah -- annisaa 145
+
+# H12
+1. adalah kekafiran bagi siapa yang meragukan kekafiran orang2 musyrikin, mungkin mereka kafir/muslim
+2. berbuat baik kepada orang-orang kafir
+3. berbuat adil kepada mereka
+4. allah tidak melarang utk berbuat baik dan adil thd orang2 yg tidak memerangi kalian krn agama dan tidak mengusir kalian -- al mumtahanan 8
+5. boleh memberikan sedekah, dan mengantar berobat kedokter atau RS
+6. boleh membuat perjanjian damai
+7. boleh bermuamalah
+8. tidak boleh mewarisi harta
+9. tidak boleh dikubur d kuburan kaum muslimin
+10. tidak boleh menzolimi mereka
+11. tidak boleh mendahului mengucap salam
+12. tidak boleh mengucap selamat
+13. tidak boleh menyerupai
+14. tidak boleh mentaati dalam kekafiran
+15. tidak boleh anak disuruh berbakti kepada orang tua walau pun kafir... tapi kalau berbuat maksiat tidak boleh patuh
