@@ -110,3 +110,24 @@
 13. tidak boleh menyerupai
 14. tidak boleh mentaati dalam kekafiran
 15. tidak boleh anak disuruh berbakti kepada orang tua walau pun kafir... tapi kalau berbuat maksiat tidak boleh patuh
+
+# H13 pembatal keislaman ke-4
+1. barang siapa meyakini selain petunjuk/hukum nabi lebih sempurna maka dia telah kaafir
+2. petunjuk dari nabi berasal dari wahyu Allah
+3. an-najm 3-4
+4. berarti apa yg datang dari rasulullah berarti lebih sempurna
+5. perkataan yg baik adalah kitabullah, petunju yang paling baik adalah petunjuk rasulullah -- hr an-nasaa'i
+6. contoh: bagi waris harus sesuai hukum Allah
+
+# H14 pembatal ke 5
+1. siapa yang benci sesuatu diantara yang dibawa rasulullah meskipun dia mengamalkan, maka dia telah kufur berdasar ijma'
+2. seorang harus ridho dengan apa yang datang
+3. kemaksiatan tidak menunjukan bahwa dia benci, ada sahabat yg sering d hukum cambuk karena minum khamr, tapi dia mencintai Allah dan rasulNya
+
+# H15 pembatal ke 6
+1. mengejek sesuatu yang berkaitan dengan pahala allah pahala atau siksanya sungguh telah kufur
+2. mengagungkan Allah = al isra 111
+3. dgn cara hanya dengan menyembah Allah
+4. menyekutukan, menyifati lemah = merendahkan Allah
+5. kewajiban muslim menghormati ayat2 Allah al baqarah 201
+6. menghormati istri -istri rasululllah dan juga sahabat-sahabat rasulullah
